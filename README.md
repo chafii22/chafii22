@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 # 💫 About Me:
-🌱 I’m currently learning
+🌱 I’m still learning, and will be always learning.
 
 
 ## 🌐 Socials:
